@@ -1,2 +1,2 @@
-***❤ Glory to Heaven - Official Streaming Platform ❤***<br />
+***❤ GDFlix - Official Streaming Platform ❤***<br />
 ***Scroll Down for Community Guidelines and Project Licenses.***
